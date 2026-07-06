@@ -43,4 +43,4 @@
 
 **Keywords:** Stake зеркало, рабочие зеркала Stake, зеркало Stake, Stake зеркало 2026, Stake доступ Россия, Stake доступ СНГ, Stake RU, Stake WW, Stake mirror, Stake.com зеркало, альтернативные домены Stake, Stake прокси.
 
-**Author:** Stake Mirror Index 2026
+**Author:** Stake Зеркала Index 2026
